@@ -33,7 +33,7 @@
 
 #             ennnnn
 #         maybe i should try to write a book someday
-#               the content is all about Murmuring and Mumbling
+#               the content will be all about Murmuring and Mumbling
 #             it should be fun     lol
 
 #       ends of this crap ......   time for bed :p
